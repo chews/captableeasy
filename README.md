@@ -6,7 +6,7 @@ On that farm he had some Onions... IE IEO!
 CFTC here, SEC there, here a whack, there a whack, everywhere a whack whack
 Old McDonald kept his farm cause he had a great lawyer!
 
-## Ontion Futures Act 1956
+## Onion Futures Act 1956
 https://en.wikipedia.org/wiki/Onion_Futures_Act
 
 Basically stipulates that Onions are not a regulatable commodity. If one were to build a crypto-stable-kitchen-staple coin.
